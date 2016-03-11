@@ -2,4 +2,4 @@
 
 :tada:
 
-Enjoy… 
+Enjoy 
