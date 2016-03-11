@@ -8,4 +8,4 @@ Hi DOC, it's james
 
 :tada:
 
-Enjoy… 
+Enjoy 
